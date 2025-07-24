@@ -63,7 +63,7 @@ I'm passionate about building in the LLM space and always open to discussing:
 - 🤖 Research opportunities
 - 🧠 Advanced model scaling
 
-📬 Feel free to reach out or connect with me on [LinkedIn](https://www.linkedin.com/in/dayanandk01)!
+📬 Feel free to reach out or connect with me on [LinkedIn](www.linkedin.com/in/dayanand-k-65b7ba2a0)!
 
 ---
 
